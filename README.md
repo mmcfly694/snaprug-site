@@ -1,0 +1,4 @@
+The only thing vanishing faster than your Snapchat streaks—rug pulls!
+SnapRug is a meme token born from the wild world of Web3 humor, blending the disappearing magic of Snapchat with the notorious lore of crypto rugs. But don’t worry—this token is all meme, no scheme.
+✔️ Rug-Proof: Liquidity locked, contract renounced, and community-driven from day one. No shady vanishing acts here. 📸 Meme Culture Powered: Viral content, Snapchat filter integrations, and NFT drops that disappear in 24 hours—just like your ex’s texts. 🐶 Built for the Degens, by the Degens: Transparent team, verified audits, and a roadmap that doesn’t vanish overnight.
+SnapRug isn’t just a token—it’s a movement. A reminder that while rugs are funny in memes, they’re not in your portfolio. So let's laugh with the rugs, not under them.
